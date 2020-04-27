@@ -1,25 +1,39 @@
 # Giga-Bot
 All Bot Auto Upload Shell Here
-
+<br>
 :_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:
-   Assalamu'alaikum Wr.Wb.
+<br>
+   <h1>Assalamu'alaikum Wr.Wb.</h1>
+   <br>
 :_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:_:
-  This time I will Share BOT Auto Upload Shell For Free.
+<br>
+  <b>This time I will Share BOT Auto Upload Shell For Free.</b>
+  <br>
 
-   Okay, you can check it right here:
-
-  • pastebin.com/u/ArchiveShell •
-
-:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:
+   <b>Okay, you can check it right here:</b>
+<br>
+  <b>• pastebin.com/u/ArchiveShell •</b>
+<br>
+<i>:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:</i>
+<br>
 consists of :
- JEx V4 BOT
+<br>
+ <b>JEx V4 BOT</b>
+ <br>
 https://pastebin.com/Ru0Q71ea
- JEx v3 BOT
+<br>
+ <b>JEx v3 BOT</b>
+ <br>
 https://pastebin.com/9NsTDYMX
- 0Day Izocin BOT
+<br>
+ <b>0Day Izocin BOT</b>
+ <br>
 https://pastebin.com/60WqrTbk
- Zombie BOT V12
+<br>
+ <b>Zombie BOT V12</b>
+ <br>
 https://pastebin.com/NQcC5ZrX
+<br>
  Payload V3 BOT
 https://pastebin.com/gmtz5Efj
  Jaguar V3 BOT
@@ -40,10 +54,14 @@ https://pastebin.com/acVBPLxd
 https://pastebin.com/nPxnqNZ1
  BadMood v2 BOT
 https://pastebin.com/MjTbG8VW
- ICG BOT
+ <b>ICG BOT</b>
+ <br>
 https://pastebin.com/aTy7FWyy
- XWarning BOT
+<br>
+ <b>XWarning BOT</b>
+ <br>
 https://pastebin.com/t5KMRMNW
+<br>
 
 *If Link Download Error. You Can Contact me👌
 :+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:+:
